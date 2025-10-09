@@ -3,7 +3,7 @@
 
 **Начинающий Python-разработчик**  
 
-📧 gmail@gmail.com | 📞 +7 (999) 999-99-99  
+📞 +7 (980) 106-78-14  
 🌐 [LinkedIn](https://vk.com/jinx_caitlyn) | 💻 [GitHub](https://github.com/NikolBass)
 
 ---
